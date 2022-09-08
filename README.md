@@ -1,1 +1,1 @@
-# https://Mandarin-ka.github.io/rsschool-cv/cv
+# https://Mandarin-ka.github.io/rsschool-cv/
